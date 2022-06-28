@@ -1,2 +1,2 @@
 # JOKE-JAR-
-You click on this google chrome extension to get a random Joke every time 😂
+You click on this google extension and get a new joke extension  😂
